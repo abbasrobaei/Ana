@@ -1,3 +1,1 @@
 # Ana
-# Mana
-# Tina
